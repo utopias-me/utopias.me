@@ -6,8 +6,8 @@
 
 
 http://utopias.me
+http://utopias.me
+http://utopias.me
 
-http://www.utopias.me
 
-www.utopias.me
 
